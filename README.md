@@ -1,2 +1,2 @@
 # Physical-Rehabilitation-and-Recreational-Health-Technologies
-scientific journal
+Vol. 8 No. 1 (2023)
